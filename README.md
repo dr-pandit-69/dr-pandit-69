@@ -1,6 +1,6 @@
 ### Hi there 👋
 Just another man tryna live my life
-<div class="tenor-gif-embed" data-postid="13591625" data-share-method="host" data-aspect-ratio="0.561947" data-width="100%"><a href="https://tenor.com/view/vibrant-sun-moon-zodiac-oprah-gif-13591625">Vibrant Sun GIF</a>from <a href="https://tenor.com/search/vibrant-gifs">Vibrant GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+![](https://tenor.com/view/vibrant-sun-moon-zodiac-oprah-gif-13591625)
 <!--
 **dr-pandit-69/dr-pandit-69** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
