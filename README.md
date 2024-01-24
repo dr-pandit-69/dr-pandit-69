@@ -1,9 +1,10 @@
+<div style="display: flex; align-items: center;">
+  <img width="100" src="https://indianmemetemplates.com/wp-content/uploads/swami-telling-his-long-name.jpg" alt="Your Image Description" style="margin-right: 20px;">
 
-<div align="right">
-  <img width="20%" src="https://indianmemetemplates.com/wp-content/uploads/swami-telling-his-long-name.jpg" alt="Your Image Description">
 
-</div>
-<div align="left">
+ 
+
+
   # Hola👋
  Welcome to the profile of dr-pandit-69🤪
 Mhmm, as weird as that name username sounds, I'm B H V S P Subrahmanyam or Balabhadrapatruni Hari Vaishnavi Sai Pavaan Subrahmanyam (Sharma, omitted due to exceeding name length in documents)
