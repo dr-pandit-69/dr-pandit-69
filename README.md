@@ -22,7 +22,7 @@ a quick buck), I picked up Photoshop,Lightroom skills & lot of fun experiences a
 
 # Philosophy✒️🏞️🙏
 
-My philosophy in making projects is to combine all my multi-dimensional learnings & ideas into real-world projects with scalability potential that's useful to a lot of people. Though due to highly commercial nature of CS, people make projects to impress a recruiter and get that 6/7 figures paycheck, my goal is to use my GitHub as a tool for me to help build cool & interesting projects that I will end up using personally from random scraping bots to literally anything that I can think of
+My philosophy in making projects is to combine all my multi-dimensional learnings & ideas into real-world projects with scalability potential that's useful to a lot of people. My goal is to use my GitHub as a tool for me to help build cool & interesting projects that I will end up using personally from random scraping bots to literally anything that I can think of (within in my time & energy capacity).
 
 
 
