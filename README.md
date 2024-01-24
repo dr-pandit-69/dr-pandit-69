@@ -1,14 +1,34 @@
 
 
-  # Hola👋
+# Hola👋
  Welcome to the profile of dr-pandit-69🤪
-Mhmm, as weird as that name username sounds, I'm B H V S P Subrahmanyam or Balabhadrapatruni Hari Vaishnavi Sai Pavaan Subrahmanyam (Sharma, omitted due to exceeding name length in documents)
-I know it's getting wEiRdEr already.
+Mhmm, as weird as that name username sounds, I'm B H V S P Subrahmanyam or Balabhadrapatruni Hari Vaishnavi Sai Pavaan Subrahmanyam (Sharma, omitted due to exceeding name length in documents) I know it's getting wEiRdEr already.
+
 ![](https://github.com/dr-pandit-69/dr-pandit-69/blob/main/dhamaal.gif)
 
-# History🔎🧭
+# History🔎🧭🛜
 
-I'm originally from Hyderabad, I wanted to be a YouTuber as a kid, I opened a YT channel at the age of 11 called STPHD (Striker Tech Productions HD, pshhh I know it's wannabe MKBHD) it did it get 500k+ views which was mASSive for a little kid, however (un)fortunately I got my 🍑 whipped by momma dadda to focus on good grades (avg desi kid life), I also loved hacking as a kid, in the days of 249 1GB 3G data packs, I'd distribute wifi pwds to kids in my colony like birthday chocolates, that's when I got my second 🍑 whip, I also loved hard-bricking Android phones to the point that Service centre guys hurl abuses fixing it, but as you'd already expect, that's when I got my 3rd 🍑 whip, that's enough 🍑 whip stories.
+I'm originally from Hyderabad, I wanted to be a YouTuber as a kid, I opened a YT channel at the age of 11 called STPHD (Striker Tech Productions HD, pshhh I know it's wannabe MKBHD) it did it get 500k+ views which was mASSive for a little kid, however (un)fortunately I got my 🍑 whipped by momma dadda to focus on good grades (avg desi kid life), I also loved hacking as a kid, in the days of 249 1GB 3G data packs, I'd distribute wifi pwds to kids in my colony like birthday chocolates, unfortunately WhatsApp tigers in the complex decided to blame 2000 Rs BSNL Postpaid Internet bill on naughty colony kids (me), that's when I got my second 🍑 whip, I also loved hard-bricking Android phones to the point that Service centre guys hurl abuses fixing it, but as you'd already expect, that's when I got my 3rd 🍑 whip, that's enough 🍑 whip stories. (don't ask the color)
+
+
+# Education 🏫🎒📚
+
+Doing a B.Tech from Central University of Haryana (3 hrs away from Delhi) in Comp Sci & Eng. along with a B.S from IIT-Madras (Real IIT) in Data Science & Programming together, Yes it's hard but Imma still pull it off, Will probably end up doing a MS from USA (avg Telugu boy life trail)
+
+# Hobbies🎹🎸📸
+
+I love anything that keeps me engaged for hours and makes me feel like a joke mentally, I'm a passionate sucker for arts, I was deeply into photography and I did freelance for a business (for fun and to make
+a quick buck), I picked up Photoshop,Lightroom skills & lot of fun experiences along the way, I love making professional YouTube videos, after 10th grade I picked up piano initially to impress people, but in the journey I fell in love with the instrument, the whole idea of being able to translate something in your head to something tangible in no time through a set of keys is what really made me fall in love with my musical journey, the whole process of playing a piano is both mentally & physically challenging & calming at the same time, Music is literally the only place where Moon & Mercury come together and don't afflict (Graha-Yuddha), I'm not a good piano player but I strongly feel emotions when I play, I picked up the guitar & singing recently, I'm slowly falling in love with it, but piano still takes up the Number 1 spot for me, I did produce many piano covers as all the skills that I picked throughout my journey translated to something meaningful & artistic.
+
+# Astrology🌏🛕🕉️
+
+
+
+
+
+
+
+
 
 
 
