@@ -1,6 +1,6 @@
 
-<div align="center">
-  <img width="45%" src="https://indianmemetemplates.com/wp-content/uploads/swami-telling-his-long-name.jpg" alt="Your Image Description">
+<div align="right">
+  <img width="20%" src="https://indianmemetemplates.com/wp-content/uploads/swami-telling-his-long-name.jpg" alt="Your Image Description">
 
 </div>
 <div align="left">
