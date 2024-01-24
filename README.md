@@ -1,7 +1,7 @@
 
 
   # Hola👋
-  <img align="right" width="147" height="239" src="https://media1.tenor.com/m/C9_pDEb_QwEAAAAd/dhamaal-arshad-warsi-javed-jaffrey-aiyyar-venugopal-aiyyer-name-telling-scene.gif">
+<div align="right" class="tenor-gif-embed" data-postid="18174136" data-share-method="host" data-aspect-ratio="2.37037" data-width="100%"><a href="https://tenor.com/view/dhamaal-arshad-warsi-javed-jaffrey-aiyyar-venugopal-aiyyer-name-telling-scene-chinnaswami-muttaswami-gif-18174136">Dhamaal Arshad Warsi Javed Jaffrey Aiyyar Venugopal Aiyyer Name Telling Scene GIF</a>from <a href="https://tenor.com/search/dhamaal-gifs">Dhamaal GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
  Welcome to the profile of dr-pandit-69🤪
 Mhmm, as weird as that name username sounds, I'm B H V S P Subrahmanyam or Balabhadrapatruni Hari Vaishnavi Sai Pavaan Subrahmanyam (Sharma, omitted due to exceeding name length in documents)
 I know it's getting wEiRdEr already, you might prolly be thinking of Iyer from Dhamaal picture 
