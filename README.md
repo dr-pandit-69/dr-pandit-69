@@ -1,6 +1,7 @@
 <div style="display: flex; align-items: center;">
   <img width="100" src="https://indianmemetemplates.com/wp-content/uploads/swami-telling-his-long-name.jpg" alt="Your Image Description" style="margin-right: 20px;">
-
+Mhmm, as weird as that name username sounds, I'm B H V S P Subrahmanyam or Balabhadrapatruni Hari Vaishnavi Sai Pavaan Subrahmanyam (Sharma, omitted due to exceeding name length in documents)
+I know it's getting wEiRdEr already, you might prolly be thinking of Iyer from Dhamaal picture 
 
  
 
