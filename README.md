@@ -12,7 +12,15 @@ Mhmm, as weird as that name username sounds, I'm B H V S P Subrahmanyam or Balab
 I know it's getting wEiRdEr already, you might prolly be thinking of Iyer from Dhamaal picture 
 </div>
 
-
+<p align="center">
+      <img src="https://indianmemetemplates.com/wp-content/uploads/swami-telling-his-long-name.jpg" align="left"/>
+      <p align="right">
+      Jai Shri Ram
+        
+      </p>
+     
+     
+</p>
 <!--
 **dr-pandit-69/dr-pandit-69** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
