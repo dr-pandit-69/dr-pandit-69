@@ -10,11 +10,6 @@ Mhmm, as weird as that name username sounds, I'm B H V S P Subrahmanyam or Balab
 
 Pursuing B.Tech in Comp Sci. & Eng. at Central University of Haryana, B.S. in Data Sci. & Prog. from IIT Madras, Trinity College of London certified Pianist, part-time Guitarist & Musician, love photography, was a tech content creator with over 500k+ views, fascinated by occult & spirituality.
 
-#Tech Stacks
-
-
-#Softwares
-
 
 <h2>🚀 Some Tools I Use</h2>
 <p align="left">
